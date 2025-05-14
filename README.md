@@ -1,0 +1,2 @@
+# tadikapurinews-politik
+# media-mahjong
